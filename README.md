@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Muhammad Areeb
-- 👀 I’m interested in 
+- 👀 I’m interested in coding  
 - 🌱 I’m currently working on Ecommerce App 
 - 💞️ I’m looking to collaborate you ...
 - 📫 How to reach me areebmuhammad96@gmail.com and my watsapp is 03122326792
